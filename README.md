@@ -1,0 +1,2 @@
+# meiguoshoujihao
+注册chatgpt没有美国手机号怎么办,在线接受手机短信验证码有办法
